@@ -1,1 +1,1 @@
-# 4-Amaliy-topshiriq
+# 4-Amaliyot
